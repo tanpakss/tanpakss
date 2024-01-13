@@ -1,10 +1,14 @@
 Hello I'm Tantan 🤩 
 
-💻 Graphic Designer
+### About me
 
-✏️ UX/UI Designer
+* 🏅 Long-Term Scholarship Student @ [Junior Science Talent Project (JSTP)]([https://www.nectec.or.th/](https://www.nstda.or.th/jstp/))
 
-📚 Robotics and AI Engineering, KMITL.
+* 💻 Graphic Designer @ [[https://www.nectec.or.th/](https://www.nstda.or.th/jstp/](https://www.facebook.com/unisecthailand)))
+
+* ✏️ UX/UI Designer
+
+* 📚 Robotics and AI Engineering, KMITL.
 
 ### My Experience
 
