@@ -8,6 +8,8 @@ Hello I'm Tantan 🤩
 
 * ✏️ UI Designer @ DoubleDev
 
+* 🖼️ Freelance 2d artist
+
 * 📚 Robotics and AI Engineering, KMITL.
 
 ### My Experience
