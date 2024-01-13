@@ -10,7 +10,7 @@ Hello I'm Tantan 🤩
 
 * 🖼️ Freelance 2d artist
 
-* 📚 Robotics and AI Engineering, KMITL.
+* 📚 Robotics and AI Engineering, KMITL
 
 ### My Experience
 
