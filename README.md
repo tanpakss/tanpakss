@@ -4,7 +4,7 @@ Hello I'm Tantan 🤩
 
 * 🏅 Long-Term Scholarship Student @ [Junior Science Talent Project (JSTP)]([https://www.nectec.or.th/](https://www.nstda.or.th/jstp/))
 
-* 💻 Graphic Designer @ [[https://www.nectec.or.th/](https://www.nstda.or.th/jstp/](https://www.facebook.com/unisecthailand)))
+* 💻 Graphic Designer @ [UNISEC-Thailand](https://www.facebook.com/unisecthailand)
 
 * ✏️ UX/UI Designer
 
