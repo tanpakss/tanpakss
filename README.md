@@ -2,7 +2,7 @@ Hello I'm Tantan 🤩
 
 ### About me
 
-* 🏅 Long-Term Scholarship Student @ [Junior Science Talent Project (JSTP)]([https://www.nectec.or.th/](https://www.nstda.or.th/jstp/))
+* 🏅 Long-Term Scholarship Student @ [Junior Science Talent Project (JSTP)]([https://www.nectec.or.th/](https://www.nstda.or.th/jstp/)
 
 * 💻 Graphic Designer @ [UNISEC-Thailand](https://www.facebook.com/unisecthailand)
 
