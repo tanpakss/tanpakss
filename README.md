@@ -1,5 +1,7 @@
 Hello I'm Tantan 🤩 
 
-🎨 Graphic Designer
+💻 Graphic Designer
+
+✏️ UX/UI Designer
 
 📚 Robotics and AI Engineering, KMITL.
