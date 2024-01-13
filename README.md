@@ -6,7 +6,7 @@ Hello I'm Tantan 🤩
 
 * 💻 Graphic Designer @ [UNISEC-Thailand](https://www.facebook.com/unisecthailand)
 
-* ✏️ UX/UI Designer @ DoubleDev
+* ✏️ UI Designer @ DoubleDev
 
 * 📚 Robotics and AI Engineering, KMITL.
 
